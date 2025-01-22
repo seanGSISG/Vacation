@@ -1,4 +1,3 @@
-```markdown
 # 3-Week Itinerary for Greece: History, Mythology, Food, and Wine
 
 ### Week 1: Athens & Surrounding Areas (7 days)
